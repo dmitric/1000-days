@@ -1,6 +1,6 @@
 # 1000 days in San Francisco
 
-I spent 1000 days in San Francisco and collect my social media posts about how I felt about the area during that time.
+I spent 1000 days in San Francisco and collected my social media posts about how I felt about the area during that time.
 
 See it here: [1000daysinsanfrancisco.com](http://www.1000daysinsanfrancisco.com)
 
